@@ -1,5 +1,3 @@
-5-Modern-Rules-of-Social-Media-Optimisation
-
 What is Social Media Optimization?
 The short form of Social Media Optimization is “SMO”, also known as ‘Search Marketing Optimization’. The term refers to the website adaption process for the improved mentation of design, online communities, attractiveness, visibility of social media, and other methods to generate new links and bring more traffic.
 
